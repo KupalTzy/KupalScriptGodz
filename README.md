@@ -1,0 +1,2 @@
+# KupalScriptGodz
+For Kupals Only!
